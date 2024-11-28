@@ -11,3 +11,5 @@ https://youtu.be/qIKd8bSk808?si=-H2SpjShw3Ruz6eN
 
 ![WhatsApp Image 2024-03-11 at 19 13 56_61e4db08](https://github.com/PratMal/RC-Lane-Blocking-v1.0/assets/161155896/86c76d1c-2b73-4e04-9d3b-5f0e53369422)
 We actually came in the best 10 entries in ATL Outreach Championship 2024 so that's sick. still waiting on ATL Marathon results though.
+
+Update: Did not get selected idk how. Sending the same project in SIM 2024-25
